@@ -4,7 +4,7 @@
 📍 Tashkent, Uzbekistan  
 📧 asrorqurbonazarov@gmail.com  
 📱 +998 (33) 200-2608  
-asror.net
+https://asror.net/
 
 ---
 
